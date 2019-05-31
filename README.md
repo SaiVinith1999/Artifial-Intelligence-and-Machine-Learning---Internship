@@ -1,1 +1,1 @@
-# Artuifial-Intelligence-and-Machine-Learning---Internship
+# Artificial-Intelligence-and-Machine-Learning---Internship
